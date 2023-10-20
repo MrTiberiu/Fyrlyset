@@ -1,2 +1,2 @@
 # Fyrlyset
-Temporary Link: http://ns10101.ifastnet.com/
+Website that i made for a small church during Covid-19
